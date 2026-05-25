@@ -7,7 +7,7 @@
 <p align="center"> :33 < yo im shark/nepeta/omg/lyme/starfire 
 <p align="center"> :33 < i purromise im cool pls dont be scared to talk to me... 👀
 <p align="center"> >:TT < fire spirit cookie yume, doubles dniuid
-
+<p align="center"> :<< < im not on pony town that often anymeowre beclawse im busy and tired sorry
 
 ‎ 
 
